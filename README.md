@@ -13,3 +13,5 @@
 ![](https://github.com/JayantGoel001/Travel-Forest/blob/master/screenshots/ss6.png)
 
 ![](https://github.com/JayantGoel001/Travel-Forest/blob/master/screenshots/ss7.png)
+
+</p><div align="center"><br><p align="center"><img align="center" src="https://profile-counter.glitch.me/{willip7}/count.svg" /></p> <br></div>
